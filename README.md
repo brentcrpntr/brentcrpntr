@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @brentcrpntr
 - 👀 I’m interested in fishing, camping, working on cars and computers and just having a good time
-- 🌱 I’m currently learning computer IT and home improvement
+- 🌱 I’m currently learning computer IT and home improvements
 - 💞️ I’m looking to collaborate on criptocurrency ivestments and making money
 - 📫 How to reach me at email brentcrpntr@gmail.com
 
